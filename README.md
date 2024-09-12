@@ -46,3 +46,5 @@ Legal and Liability Issues: Ensure waivers and insurance cover all possible scen
 Public Perception: Address the misconception that swimming with sharks is reckless. Emphasize safety protocols.
 Conclusion
 Extreme Shark Adventure Tours isn’t just a business; it’s an adrenaline-fueled dream. We’re not selling tours; we’re selling life-changing moments. So, gear up, face your fears, and let’s make waves (and maybe a few shark friends)!
+
+https://www.canva.com/design/DAGPx627jCw/NL_FMiTnpSpOFsxWJlfLPg/view?utm_content=DAGPx627jCw&utm_campaign=designshare&utm_medium=link&utm_source=editor
